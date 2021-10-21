@@ -1,4 +1,4 @@
-# JON's LIFE
+# Jen's Life
 # or, the Modern Prometheus
 ## by Mary Wollstonecraft (Godwin) Shelley
 
